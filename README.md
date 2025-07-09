@@ -28,7 +28,7 @@ I'm a passionate and driven Computer Science Engineering student currently in my
 
 **Bachelor of Technology (B.Tech)** – Computer Science Engineering  
 _Vivekanand Professional Higher Studies_  
-📍 6th Semester | CGPA: **7.4**
+📍 6th Semester | CGPA: **7.5**
 
 **Senior Secondary (12th)** – Science (PCM)  
 📅 Passed in 2022 | 📈 Percentage: **68%**
